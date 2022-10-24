@@ -27,7 +27,6 @@
 ## Langkah 8
 ![step-8](https://imgur.com/Zt68W6O.png)
 
-
 ## Langkah 9
 ![step-9](![https://imgur.com/ha2hdUU.png)
 
